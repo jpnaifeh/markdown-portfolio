@@ -1,0 +1,1 @@
+![Image of J.P. Naifeh](https://static.wixstatic.com/media/ccbcef_1e6bcb8256f44f8d82be04208d10f794~mv2.jpeg/v1/fill/w_575,h_761,al_c,lg_1,q_85,usm_0.66_1.00_0.01/ccbcef_1e6bcb8256f44f8d82be04208d10f794~mv2.jpeg)
